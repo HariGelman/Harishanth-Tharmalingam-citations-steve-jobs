@@ -5,3 +5,5 @@ Votre temps est limité, ne le gâchez pas en menant une existence qui n'est pas l
 Etre l'homme le plus riche du cimetière ne m'intéresse pas. Aller me coucher le soir en me disant j'ai fais des choses extraordinaire aujourd'hui, voilà ce qui compte.
 
 L'innovation c'est une situation qu'on choisit parce qu'on a une passion brûlante pour quelque chose.
+
+Souvent, les gens ne savent pas ce qu'ils veulent jusqu'a que vous leur montriez.
