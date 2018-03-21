@@ -7,3 +7,5 @@ Etre l'homme le plus riche du cimetière ne m'intéresse pas. Aller me coucher le 
 L'innovation c'est une situation qu'on choisit parce qu'on a une passion brûlante pour quelque chose.
 
 Souvent, les gens ne savent pas ce qu'ils veulent jusqu'a que vous leur montriez.
+
+En moins d'une semaine, nous sommes devenus le plus grand distributeur de musique au monde.
